@@ -2,7 +2,7 @@
 <img src="https://i.pinimg.com/736x/00/7f/cb/007fcb42df4b13ae747d43518bb631ae.jpg" width="333" height="333"><img src="https://i.pinimg.com/736x/ba/2f/b7/ba2fb7afc5799bc4d2f2b7bb449b5f8d.jpg" width="333" height="333">
 
 ## HI hello I'm Sonia or Jecka and here's some links so you can get to know me better !!
-### [Atabook](https://jecka.atabook.org) ⠀⠀[Strawpage](https://cutiecorn.straw.page) ⠀⠀[Rentry](https://rentry.co/biases)
+### [Atabook](https://jecka.atabook.org) ⠀⠀[Strawpage](https://selfindulgent.straw.page) ⠀⠀[Rentry](https://rentry.co/biases)
 
 ## Small trivia :
 
