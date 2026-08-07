@@ -2,4 +2,4 @@ trying to get to 1k : )
 
 stan loona and stream redebuts for clear skin
 
-<img src="https://i.pinimg.com/originals/af/96/d3/af96d348be2acda1d46d32acdb61d04e.gif" alt=" " width="500" height="300">
+<img src="https://i.pinimg.com/1200x/7a/3a/0e/7a3a0e118b11f1408fbb95502e9edaef.jpg" alt=" " width="300" height="300">
