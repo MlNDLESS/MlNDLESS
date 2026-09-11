@@ -1,4 +1,4 @@
-number 1 reflectivedetective fan on @shiptown <3
+number 1 reflectivedetective fan on @ship-town <3
 
 trying to get to 1k : )
 
