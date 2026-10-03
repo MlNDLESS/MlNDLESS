@@ -7,9 +7,9 @@
   <img src="https://komarev.com/ghpvc/?username=MlNDLESS&label=˚◞♡&color=F17AE3" alt="MlNDLESS" />
 </p>
 
-$\color{#F17AE3}{\text{໒ྀི✙ ̫𓏻 name ou name}}$ 
+$\color{#F17AE3}{\text{໒ྀི✙ ̫𓏻 sonia ou valerie}}$ 
 
-$\color{#7D8ED6}{\text{Ი ᰍ ݃ ݁ᣟ݂ prns ／ prns o(｀ω´ )o}}$
+$\color{#7D8ED6}{\text{Ი ᰍ ݃ ݁ᣟ݂ she ／ him o(｀ω´ )o}}$
 <img width="476" height="382" alt="IMG_6473" src="https://github.com/user-attachments/assets/fed79113-5752-4e98-a5b5-c99d285834d5" />
 
 [新book](https://jecka.atabook.org)&nbsp;[strawp](https://selfindulgent.straw.page)&nbsp;
