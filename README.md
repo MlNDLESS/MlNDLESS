@@ -10,6 +10,7 @@
 $\color{#F17AE3}{\text{໒ྀི✙ ̫𓏻 sonia ou valerie}}$ 
 
 $\color{#7D8ED6}{\text{Ი ᰍ ݃ ݁ᣟ݂ she ／ him o(｀ω´ )o}}$
+
 <img width="476" height="382" alt="IMG_6473" src="https://github.com/user-attachments/assets/fed79113-5752-4e98-a5b5-c99d285834d5" />
 
 [新book](https://jecka.atabook.org)&nbsp;[strawp](https://selfindulgent.straw.page)&nbsp;
